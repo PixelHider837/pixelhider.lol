@@ -267,3 +267,6 @@ Thank you for your understanding and I wish everyone the best in their endeavors
 第六名：鬼灭之刃
 第七名：咒术回战
 （接受广大网友补充）
+Adobe软件大全（包含Win系统和Mac系统各版本各软件，2015-2025版本） 
+阿里云盘：https://www.alipan.com/s/1AWtFS8q13G
+百度网盘：https://pan.baidu.com/s/1RnYhVP3_mEcE5PqnlHwlzQ?pwd=2025 提取码:2025
